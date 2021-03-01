@@ -30,7 +30,7 @@ Located in Toronto
 </details>
 
 ### Why We Do?
-Embrace the principal of art in photography <br>
+Embrace the principal of art in filmography <br>
 Provide premium service without premium price
 
 ### Learn More
