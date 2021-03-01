@@ -35,7 +35,7 @@ Provide premium service without premium price
 
 ### Learn More
 #### Contact
-[Website](https://creativefilms.ca) | [Email](mailto:hello@creativefilms.ca) | [Instagram](https://vimeo.com/viewsbyviji)
+[Website](https://creativefilms.ca) | [Email](mailto:hello@creativefilms.ca) | [Vimeo](https://vimeo.com/viewsbyviji)
 
 #### Follow
 [Twitter](https://twitter.com/viewsbyviji) | [Facebook](https://facebook.com/viewsbyviji) | [LinkedIn](https://linkedin.com/company/viewsbyviji) 
